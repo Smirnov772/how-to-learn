@@ -11,5 +11,6 @@
 https://smirnov772.github.io/how-to-learn/
 
 
-![image](https://user-images.githubusercontent.com/65502557/127458575-f0cecbb1-a4f1-4a53-8622-8df5fe533121.png)
+![image](https://user-images.githubusercontent.com/65502557/127459254-80da9e95-3be6-4334-8d58-94a9d010cbf3.png)
+
 
